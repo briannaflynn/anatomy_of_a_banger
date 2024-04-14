@@ -1,2 +1,2 @@
-# anatomy_of_a_banger
+# Anatomy of a Heater
 Understanding techno at the molecular level
